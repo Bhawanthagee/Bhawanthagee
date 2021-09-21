@@ -1,6 +1,6 @@
 ### Hi there, I'm Bhawantha Geeganage 👋
 
-## I'm a undergraduate and a Developer!
+## Software Engineer Graduate and a Developer!
 
 - 🔭 I’m currently Studding at NSBM
 - 🌱 I’m currently learning everything 🤣
